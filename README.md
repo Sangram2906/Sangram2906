@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Sangram2906
 - 👀 I’m interested in developing
-- 🌱 I’m currently learning lot of about self. 
+- 🌱 I’m currently learning lot of about Myself. 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
